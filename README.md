@@ -1,6 +1,12 @@
 TLDR, Twitch does not seem to realize when they're attempting to reinforcement policying out of local minima. If they did, they wouldn't create many anonymous accounts in order to reveal their own psychological insecurities and despicable ethics to NATO, as mirror image termed Mark Leon, Leon was thrown as a 'decoy' by GCHQ.
 
 
+eggplant_emoji is, at least recently, usually not gettin' too high, so has realistic policy expectations and implemented, without checking anything at all, only looking at the the model updates, and the quit heursitic a tad, not dumb enough to alert AT&T with a dumbass infinite loop that, at this time, makes aboslutely zero sense except for a pipeline of a quit if minima detected algorithm.
+
+![image](https://github.com/user-attachments/assets/1e3196a7-62ae-4f74-b88f-700ad8461224)
+
+
+
 SO i was multi-taskin , and Twitch + all allied nations, just bitch about repetitive prompts, which ideally should be done via the API, because if I can't detect with (it's not regex; more parsin') when model o1 pro does NOT paste when postin' back to my browser, after i post to it with a prepended request, then I would have had at leaset 7 years of software engineering experience at Twitch. But sometimes they have even more!
 
 [https://t.co/kBSF0r7NA5](https://www.youtube.com/watch?v=3m3FdMqXQ7g&t=3s)
