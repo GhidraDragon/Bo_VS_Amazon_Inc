@@ -7,3 +7,13 @@ So Twitch and all allied nations are losing to an eggplant_emoji who's too lazy 
 https://github.com/PDFSage/legally-blonde
 
 Do we have an understanding? There are many developing nations in the world, the 'mirror image' squad, and Mark Leon! Even French and Germans aren't standing shoulder to shoulder with Mark Leon.
+
+
+![image](https://github.com/user-attachments/assets/8444ab78-95eb-4f2a-8dac-3d76e81c88f2)
+
+
+Anyways Twitch claims that he's or they're (all male) too stupid to play lego. etc.
+
+https://boshang9.wordpress.com
+
+https://boshang9.wordpress.com/blog/
