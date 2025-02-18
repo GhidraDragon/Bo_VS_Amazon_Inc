@@ -1,5 +1,10 @@
 TLDR, Twitch does not seem to realize when they're attempting to reinforcement policying out of local minima. If they did, they wouldn't create many anonymous accounts in order to reveal their own psychological insecurities and despicable ethics to NATO, as mirror image termed Mark Leon, Leon was thrown as a 'decoy' by GCHQ.
 
+If one single eggplant_emoji was able to utilize the invention of a wheel, or whatever technology, this effectively, well guess where the vast majority of the 7 billion people in the world live?
+
+![image](https://github.com/user-attachments/assets/1d26ca51-2d39-461a-9b44-02f1e0f6db15)
+
+
 
 eggplant_emoji is, at least recently, usually not gettin' too high, so has realistic policy expectations and implemented, without checking anything at all, only looking at the the model updates, and the quit heursitic a tad, not dumb enough to alert AT&T with a dumbass infinite loop that, at this time, makes aboslutely zero sense except for a pipeline of a quit if minima detected algorithm.
 
