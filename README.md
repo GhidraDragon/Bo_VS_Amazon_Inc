@@ -4,6 +4,8 @@ I instructed single dense as a startin' model, to like guess if ur already guess
 
 ![image](https://github.com/user-attachments/assets/c5ab210c-ca4d-4a12-a71c-206a09070ad0)
 
+import gym supports everythin' u need for sure!! if not let me know somehow.. 
+
 
 
 TLDR, Twitch does not seem to realize when they're attempting to reinforcement policying out of local minima. If they did, they wouldn't create many anonymous accounts in order to reveal their own psychological insecurities and despicable ethics to NATO, as mirror image termed Mark Leon, Leon was throw'own' as a 'decoy' by GCHQ.
