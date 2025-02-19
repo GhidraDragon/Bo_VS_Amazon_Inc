@@ -1,5 +1,11 @@
 SOO mr operation "salt typhoon", etc. (remember 31-1) Judge Legally Blonde? - if Twitch doesn't know how to play lego - well I'm sure you'd be afraid of some blackhawk hellicopters and LOL https://github.com/PDFSage/legally-blonde try hittin' a strong point poki!!! esp with like erosolar's age Secretary of Defense lol lol
 
+I instructed single dense as a startin' model, to like guess if ur already guessin' and also as a reinforcement learning POLICY network where you attempt to tree search UP the probability, yet the REWARDS network, is either a 1 or 0, or something that resembles VERIFIED TRUTH, no garbage on garbage allowed.
+
+![image](https://github.com/user-attachments/assets/c5ab210c-ca4d-4a12-a71c-206a09070ad0)
+
+
+
 TLDR, Twitch does not seem to realize when they're attempting to reinforcement policying out of local minima. If they did, they wouldn't create many anonymous accounts in order to reveal their own psychological insecurities and despicable ethics to NATO, as mirror image termed Mark Leon, Leon was throw'own' as a 'decoy' by GCHQ.
 
 If one single eggplant_emoji was able to utilize the invention of a wheel, or whatever technology, this effectively, well guess where the vast majority of the 7 billion people in the world live?
