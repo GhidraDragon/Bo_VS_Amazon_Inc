@@ -1,3 +1,5 @@
+SOO mr operation "salt typhoon", etc. (remember 31-1) Judge Legally Blonde? - if Twitch doesn't know how to play lego - well I'm sure you'd be afraid of some blackhawk hellicopters and LOL https://github.com/PDFSage/legally-blonde
+
 TLDR, Twitch does not seem to realize when they're attempting to reinforcement policying out of local minima. If they did, they wouldn't create many anonymous accounts in order to reveal their own psychological insecurities and despicable ethics to NATO, as mirror image termed Mark Leon, Leon was throw'own' as a 'decoy' by GCHQ.
 
 If one single eggplant_emoji was able to utilize the invention of a wheel, or whatever technology, this effectively, well guess where the vast majority of the 7 billion people in the world live?
